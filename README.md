@@ -1,1 +1,1 @@
-# SpaceKru
+# SpaceKru Inc.
